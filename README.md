@@ -49,6 +49,13 @@ NGOs and social activists.
 </pre>
 <br>
 
+### VIDEO LINK :-
+
+#### Portal Tour - Click on the below picture to get redirected for the video briefing :point_down:
+[![IMAGE ALT TEXT HERE](https://user-images.githubusercontent.com/64918181/186975848-c4cd1171-dee5-40f0-a0f7-f07f0de206e7.jpg)](https://www.youtube.com/embed/HiMQaHD8stI)
+<br>
+<br>
+
 ### TEAM :-
 
 | <b>Vishnuvasan</b> | <b>Rahul</b> | <b>John</b> |
