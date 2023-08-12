@@ -52,7 +52,7 @@ NGOs and social activists.
 ### VIDEO LINK :-
 
 #### Portal Tour - Click on the below picture to get redirected for the video briefing :point_down:
-[![IMAGE ALT TEXT HERE](https://user-images.githubusercontent.com/64918181/186975848-c4cd1171-dee5-40f0-a0f7-f07f0de206e7.jpg)](https://www.youtube.com/embed/HiMQaHD8stI)
+[![IMAGE ALT TEXT HERE](https://github.com/Cipher-unhsiV/Neural-Nexus/assets/64918181/956e0e6f-869c-4d5f-92eb-05d2e744ff82)](https://www.youtube.com/embed/HiMQaHD8stI)
 <br>
 <br>
 
